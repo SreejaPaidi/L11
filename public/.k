@@ -1,2 +1,0 @@
-njh
-cnjc
